@@ -1,0 +1,2 @@
+# xCemKLCx
+Yazılım ile uğraşıyorum !
